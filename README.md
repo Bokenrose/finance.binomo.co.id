@@ -1,1 +1,0 @@
-# finance.binomo.co.id
